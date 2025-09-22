@@ -1,0 +1,1 @@
+1. 21.09.2025 o cérebro foi feito para ter ideias e não pra guardar ideias
