@@ -1,1 +1,2 @@
-21.09.2025 Pressionar ALT + ~^ pra usar o TIL(~) no notebook Samsung book 
+1. 21.09.2025
+Pressionar ALT + ~^ pra usar o TIL(~) no notebook Samsung book 
